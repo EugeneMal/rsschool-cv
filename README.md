@@ -1,1 +1,0 @@
-https://EugeneMal.github.io/rsschool-cv/cv
